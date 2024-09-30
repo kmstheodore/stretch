@@ -1,0 +1,1 @@
+PNF stretching is a type of [[static stretching]] 
